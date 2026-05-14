@@ -1,4 +1,4 @@
-#  
+#  ultimate mining tycoon top Scripts is the best ultimate mining tycoon Script, featuring one-hit kill and auto-heal. Safe and powerful for all your
 
 
 
